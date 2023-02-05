@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **webxpose4@gmail.com**
 
-- ⚡ Fun fact **I think I am funny, creative**
+- ⚡ Fun fact **I think I am funny and creative also**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
